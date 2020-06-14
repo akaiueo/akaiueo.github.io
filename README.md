@@ -1,0 +1,1 @@
+# akaiueo.github.io
